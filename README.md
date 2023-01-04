@@ -1,0 +1,2 @@
+# WGTIK-2022
+Tugas WGTIK 
