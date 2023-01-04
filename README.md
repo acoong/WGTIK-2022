@@ -1,2 +1,2 @@
 # WGTIK-2022
-Tugas WGTIK 
+Basic Skill : Bisa mengerjakan tugas h-1
